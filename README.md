@@ -1,2 +1,0 @@
-# Ecuador31
-# final
